@@ -1,0 +1,1 @@
+# TAKENMIND-Data-Analytics-Remote-Internship
